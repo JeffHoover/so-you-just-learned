@@ -54,6 +54,8 @@ Here's a quick reference to terms you may have seen as you progress through the 
 
 #### [Privilege](https://everydayfeminism.com/2014/09/what-is-privilege/):  *An unearned advantage given to some people but not all. Individuals with privilege are considered to be the normative group, leaving those without access to this privilege invisible, unnatural, deviant, or just plain wrong. Most of the time, these privileges are automatic and most individuals in the privileged group are unaware of them. Some people who can “pass” as members of the privileged group might have access to some levels of privilege.*
 
+#### [Preferred Pronouns](https://www.algbtical.org/2A%20PRONOUNS.htm):  *The pronouns a person choses to use for themself. Examples are: She/Her/Hers, He/Him/His, They/Them/Theirs *
+
 ### Q
 ### R
 
